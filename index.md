@@ -1,3 +1,3 @@
 # Welcome to my blog
 
-I'm glad you are here. I plan to talk about ...
+From Hong Kong. Rediscover HK's history and its glorious days.
